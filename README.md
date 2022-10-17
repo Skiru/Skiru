@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @Skiru
+- 👀 I’m interested in computer technology, gym and being positive :)
+- 🌱 I’m currently learning how to work with people
